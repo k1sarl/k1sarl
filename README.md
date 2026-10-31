@@ -15,6 +15,7 @@ terf / rad-fem / asexual lesbian
       </td>
     </tr>
   </table>
+    <a href="https://t.me/hdvdidv">𝐓𝐞𝐥𝐞𝐠𝐫𝐚𝐦 𝐚𝐫𝐭 𝐜𝐡𝐚𝐧𝐧𝐞𝐥</a>
     <details>
 <summary>　sᴏᴄɪᴀʟ ᴍᴇᴅɪᴀ ♱ </summary>
 <div align="center" class="gallery">
